@@ -1,1 +1,1 @@
-# Ninka-waalan
+# Ninkawaalan
